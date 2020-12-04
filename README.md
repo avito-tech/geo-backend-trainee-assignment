@@ -29,7 +29,3 @@
 ​
 ​
 ​
-Shared in
-2
-Irina Muleva, Denis Iogansen
-4 days ago
